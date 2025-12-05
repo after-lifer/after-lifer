@@ -6,4 +6,4 @@
 hey there! as you already know from‎ my bio— im luci/aspen! 
 feel free to c+h, and i dont mind if you hide me!
 
-(pt info)[rentry.co/varkalen]
+[pt info](rentry.co/varkalen) , [opinions on ships](rentry.co/shippyships) 
