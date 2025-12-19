@@ -6,6 +6,6 @@
 hey there! as you already know from‎ my bio— im luci/aspen! 
 feel free to c+h, and i dont mind if you hide me!
 
-[pt info](https://rentry.co/varkalen) — [opinions on ships](https://rentry.co/shippyships) — [color my tree](https://colormytree.me/2025/01KBQQV6CREA2AR11DG2GZBMX8) — my strawpage is being worked on rn
+[pt info](https://rentry.co/varkalen) — [opinions on ships](https://rentry.co/shippyships) — [color my tree](https://colormytree.me/2025/01KBQQV6CREA2AR11DG2GZBMX8) — [strawpage](https://b4mbilu.straw.page/) 
 
 _ _ _
