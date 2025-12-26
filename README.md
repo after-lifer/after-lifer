@@ -1,6 +1,7 @@
 # info
 
-<img width="3072" height="3334" alt="1000046817" src="https://github.com/user-attachments/assets/11bd7005-871f-43de-8edf-ecce063c7dba" />
+<img width="3072" height="3334" alt="1000046819" src="https://github.com/user-attachments/assets/2e206953-2f79-41ba-ba4b-485064725969" />
+
 
 
 hey there! as you already know from‎ my bio— im luci/fer
