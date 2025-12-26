@@ -19,7 +19,7 @@ _ _ _
 
 <div align="center">
 
-[✦. opinions on ships](https://rentry.co/shippyships)
+[✦. opinions on ships](https://rentry.co/deathcomesatlife)
 
 </div>
 
