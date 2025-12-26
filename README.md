@@ -7,9 +7,10 @@
 
 _ _ _
 
-[: 𝑷𝑻 𝐼𝘯𝘧𝘰 .](https://rentry.co/varkalen) 
-—
-[: 𝓞𝘱𝘪𝘯𝘪𝘰𝘯𝘴 𝘰𝘯 𝘴𝘩𝘪𝘱𝘴 .](https://rentry.co/shippyships) 
+<p align="center">[: 𝑷𝑻 𝐼𝘯𝘧𝘰 .](https://rentry.co/varkalen)</p>
+—<p align="center"> — </p>
+
+<p align="center"> [: 𝓞𝘱𝘪𝘯𝘪𝘰𝘯𝘴 𝘰𝘯 𝘴𝘩𝘪𝘱𝘴 .](https://rentry.co/shippyships) </p>
 —
 
 
