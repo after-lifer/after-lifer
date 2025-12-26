@@ -7,9 +7,11 @@
 
 _ _ _
 
+<p align="center"> — </p>
+
 <div align="center">
 
-[:: 𝙥𝙩](https://rentry.co/varkalen) 
+[✦. 𝙥𝙩 𝙞𝙣𝙛𝙤](https://rentry.co/varkalen) 
 
 </div>
 
@@ -17,9 +19,10 @@ _ _ _
 
 <div align="center">
 
-[:: opinions on ships](https://rentry.co/shippyships)
+[✦. opinions on ships](https://rentry.co/shippyships)
 
 </div>
 
+<p align="center"> — </p>
 
 _ _ _
