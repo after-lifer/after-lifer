@@ -15,4 +15,7 @@ _ _ _
 
 <p align="center"> — </p>
 
+<p align="center"> [GitHub Documentation](https://docs.github.com/) </p>
+
+
 _ _ _
